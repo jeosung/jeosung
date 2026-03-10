@@ -3,7 +3,7 @@
 ✗ <a href="https://jeo.atabook.org" target="_blank">新book​</a> ﾒ
 
 <p align="center">
-𝖼+𝗁 ⌖ 𝗐2𝗂
+𝖼+𝗁 𓏲ּ𝄢 𝗐2𝗂
 </p>
 
 <p align="center">
@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">
-ᵎ!ᵎ
+⋮ ⌗ ┆
 </p>
 
 <p align="center">
@@ -19,7 +19,7 @@
 </p>
 
 <p align="center">
-  ـــــــــﮩ٨ـ
+࣪ ִֶָ☾.
 </p>
 
 <p align="center">
@@ -27,7 +27,7 @@
 </p>
 
 <p align="center">
-࣪ ִֶָ☾.
+࣪𝄞⨾𓍢ִ໋
 </p>
 
 <p align="center">
