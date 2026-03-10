@@ -3,7 +3,7 @@
 ✗ <a href="https://jeo.atabook.org" target="_blank">新book​</a> ﾒ
 
 <p align="center">
-𝖼+𝗁 ރ 𝗐2𝗂
+𝖼+𝗁 ⌖ 𝗐2𝗂
 </p>
 
 <p align="center">
