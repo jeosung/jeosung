@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/1473015822145294607/1480985329807785994/Untitled3071_20260310120942.png?ex=69b1aa92&is=69b05912&hm=61c142d43d07ba9463536d3d63be5086a09f947687bc81417bafc5cd6abb64c8&" width="600" height="400" />
+<img src="https://cdn.discordapp.com/attachments/1473015822145294607/1480985329807785994/Untitled3071_20260310120942.png?ex=69b1aa92&is=69b05912&hm=61c142d43d07ba9463536d3d63be5086a09f947687bc81417bafc5cd6abb64c8&" width="800" height="400" />
 </p>
 
 <p align="center">
