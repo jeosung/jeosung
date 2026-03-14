@@ -1,11 +1,7 @@
 <div align="center">
 <h6 align>
 ✗ <a href="https://jeo.atabook.org" target="_blank">新book​</a> ﾒ
-
-<p align="center">
-𝖼+𝗁 𓏲ּ𝄢 𝗐2𝗂
-</p>
-
+  
 <p align="center">
 <img src="https://cdn.discordapp.com/attachments/1473015822145294607/1481162954563915806/Untitled3071.2026.03.11-05.55_20260311003241.png?ex=69b24fff&is=69b0fe7f&hm=6bc62df7f30650b0a621553f0d488b5b7b6aaa62480c048a1b9a4722acc54325" width="800" height="400" />
 </p>
@@ -15,7 +11,7 @@
 </p>
 
 <p align="center">
-𝚠𝚑𝚒𝚜𝚙 𝚖𝚎 𝚒𝚏 𝚢𝚘𝚞 𝚠𝚊𝚗𝚝 𝚝𝚘 𝚝𝚊𝚕𝚔 𝚝𝚘 𝚖𝚎 𝚍𝚒𝚛𝚎𝚌𝚝𝚕𝚢. 𝚒𝚏 𝚒 𝚑𝚊𝚟𝚎𝚗’𝚝 𝚛𝚎𝚜𝚙𝚘𝚗𝚍𝚎𝚍 𝚒’𝚖 𝚊𝚏𝚔 𝚘𝚛 𝚊𝚜𝚕𝚎𝚎𝚙 𝚊𝚗𝚍 𝚑𝚊𝚟𝚎𝚗’𝚝 𝚗𝚘𝚝𝚒𝚌𝚎𝚍 𝚢𝚘𝚞 𝚢𝚎𝚝, 𝚘𝚛 𝚢𝚘𝚞𝚛 𝚌𝚘𝚖𝚖𝚎𝚗𝚝 𝚒𝚜 𝚝𝚘𝚘 𝚖𝚞𝚗𝚍𝚊𝚗𝚎 𝚝𝚘 𝚛𝚎𝚙𝚕𝚢 𝚝𝚘
+𝚠𝚑𝚒𝚜𝚙 𝚖𝚎 𝚒𝚏 𝚢𝚘𝚞 𝚠𝚊𝚗𝚝 𝚝𝚘 𝚝𝚊𝚕𝚔 𝚝𝚘 𝚖𝚎 𝚍𝚒𝚛𝚎𝚌𝚝𝚕𝚢. 𝚒𝚏 𝚒 𝚑𝚊𝚟𝚎𝚗’𝚝 𝚛𝚎𝚜𝚙𝚘𝚗𝚍𝚎𝚍 𝚒’𝚖 𝚊𝚏𝚔 𝚘𝚛 𝚊𝚜𝚕𝚎𝚎𝚙
 </p>
 
 <p align="center">
@@ -27,7 +23,7 @@
 </p>
 
 <p align="center">
-࣪𝄞⨾𓍢ִ໋
+࣪𓏲ּ𝄢
 </p>
 
 <p align="center">
