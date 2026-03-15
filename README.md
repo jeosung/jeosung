@@ -1,6 +1,14 @@
 <div align="center">
 <h6 align>
 ✗ <a href="https://jeo.atabook.org" target="_blank">新book​</a> ﾒ
+
+<p align="center">
+ꉓ*ꃅ
+</p>
+
+<p align="center">
+ʷʰʸ ᵈᵒᵉˢ ᵉᵛᵉʳʸᵒⁿᵉ ᵃᵛᵒᶦᵈ ᵐᵉ
+</p>
   
 <p align="center">
 <img src="https://cdn.discordapp.com/attachments/1473015822145294607/1481162954563915806/Untitled3071.2026.03.11-05.55_20260311003241.png?ex=69b24fff&is=69b0fe7f&hm=6bc62df7f30650b0a621553f0d488b5b7b6aaa62480c048a1b9a4722acc54325" width="800" height="400" />
