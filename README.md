@@ -4,7 +4,7 @@
 
   
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/1473015822145294607/1484068110200995900/IMG_5602.gif?ex=69bce1a2&is=69bb9022&hm=ef3dfa853673f0f012cc5fe05dd12bc11db5f68f9d7913522f3e778b0e10141f" width="500" height="300" />
+<img src="https://i.pinimg.com/originals/82/25/34/8225346697e7d3b3e9d43f3419d7732d.gif" />
 </p>
 
 <p align="center">
@@ -12,7 +12,7 @@
 </p>
 
 <p align="center">
-𝚠𝚑𝚒𝚜𝚙 𝚖𝚎 𝚒𝚏 𝚢𝚘𝚞 𝚠𝚊𝚗𝚝 𝚝𝚘 𝚝𝚊𝚕𝚔 𝚝𝚘 𝚖𝚎 𝚍𝚒𝚛𝚎𝚌𝚝𝚕𝚢. 𝚒𝚏 𝚒 𝚑𝚊𝚟𝚎𝚗’𝚝 𝚛𝚎𝚜𝚙𝚘𝚗𝚍𝚎𝚍 𝚒’𝚖 𝚊𝚏𝚔 𝚘𝚛 𝚊𝚜𝚕𝚎𝚎𝚙 (𝚐𝚞𝚊𝚛𝚊𝚗𝚝𝚎𝚎𝚍 𝚛𝚎𝚜𝚙𝚘𝚗𝚜𝚎 𝚘𝚗 𝚊𝚝𝚊)
+𝚠𝚑𝚒𝚜𝚙 𝚖𝚎 𝚒𝚏 𝚢𝚘𝚞 𝚠𝚊𝚗𝚝 𝚝𝚘 𝚝𝚊𝚕𝚔 𝚝𝚘 𝚖𝚎 𝚍𝚒𝚛𝚎𝚌𝚝𝚕𝚢. 𝚒𝚏 𝚒 𝚑𝚊𝚟𝚎𝚗’𝚝 𝚛𝚎𝚜𝚙𝚘𝚗𝚍𝚎𝚍 𝚒’𝚖 𝚊𝚏𝚔 𝚘𝚛 𝚊𝚜𝚕𝚎𝚎𝚙
 </p>
 
 <p align="center">
